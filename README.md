@@ -21,4 +21,4 @@ Then just [leave feedback](https://github.com/rgalanakis/minimaestro-public/issu
 when you're ready!
 
 If you need any help, you can contact us directly by emailing 
-brianmumm@gmail.com and rob.galanakis@gmail.com .
+mm@steadfastgamesmobile.com.
